@@ -1,0 +1,1 @@
+ini adalah contoh  file teks dengan isi random anjayyyy
